@@ -1,3 +1,7 @@
+<p align="center">
+  <img src="https://images2.imgbox.com/75/13/hTHnCG1d_o.png" width=300 heigth=300 />
+</p>
+
 # newsletter-cast
 
 <p align="center">
