@@ -1,5 +1,9 @@
 # newsletter-cast
 
+<p align="center">
+  <img src="https://th.bing.com/th/id/OIG.8QhfSIM00SYnnIOIIfZf?pid=ImgGn" width=300 heigth=300 />
+</p>
+
 Robots that automate the collection, conversion and distribution of newsletters.
 
 ```mermaid
