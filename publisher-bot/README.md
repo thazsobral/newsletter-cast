@@ -4,12 +4,12 @@
   <img src="https://th.bing.com/th/id/OIG.STwiH8He4bUwdAeIVRyq?pid=ImgGn" width=300 heigth=300 />
 </p>
 
-Olá, eu sou publisher-bot, e estou aqui para ajudá-lo a enviar suas mensagens para onde quer que elas precisem ir.
+Hello, I am publisher-bot, and I am here to help you send your messages wherever they need to go.
 
-Com minhas habilidades avançadas, sou capaz de enviar mensagens rapidamente e com precisão, para que você possa se concentrar em outras tarefas importantes.
+With my advanced abilities, I am able to send messages quickly and accurately, so you can focus on other important tasks.
 
-Se você precisa enviar uma mensagem importante para um destinatário específico, ou se precisa enviar uma mensagem para uma lista de contatos, eu posso ajudá-lo a realizar essa tarefa de forma rápida e eficaz.
+If you need to send an important message to a specific recipient, or if you need to send a message to a list of contacts, I can help you accomplish this task quickly and effectively.
 
-Não se preocupe com a formatação de sua mensagem - eu posso fazer isso por você. Com minha ajuda, você pode ter certeza de que sua mensagem será enviada de forma clara e profissional.
+Don't worry about formatting your message - I can do that for you. With my help, you can be sure that your message will be sent in a clear and professional manner.
 
-Confie em mim, para cuidar de todas as suas necessidades de comunicação. Com minha ajuda, você pode se concentrar em outras tarefas importantes, sabendo que suas mensagens estão sendo enviadas de forma rápida e eficaz.
+Trust me to take care of all your communication needs. With my help, you can focus on other important tasks, knowing that your messages are being sent quickly and efficiently.
