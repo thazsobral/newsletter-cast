@@ -4,10 +4,10 @@
   <img src="https://th.bing.com/th/id/OIG.cYBOy77r6brRR3IAt5Nk?pid=ImgGn" width=300 heigth=300 />
 </p>
 
-Olá, eu sou converter-bot, e estou aqui para ajudá-lo a comunicar suas mensagens com facilidade e clareza.
+Hello, I am converter-bot, and I am here to help you communicate your messages with ease and clarity.
 
-Com minhas habilidades avançadas, sou capaz de converter qualquer texto em uma voz clara e poderosa, assim te ajudo a alcançar mais pessoas no mundo todo.
+With my advanced abilities, I am able to convert any text into a clear and powerful voice, helping you reach more people worldwide.
 
-Se você precisa se comunicar com um grande público, ou apenas com um indivíduo, eu posso ajudá-lo a se comunicar de forma clara e eficaz. Com minha ajuda, você pode ter certeza de que sua mensagem será ouvida e entendida.
+Whether you need to communicate with a large audience or just an individual, I can help you communicate in a clear and effective way. With my help, you can be sure that your message will be heard and understood.
 
-Confie em mim, para transmitir sua mensagem com clareza e impacto. Juntos, podemos alcançar uma comunicação mais poderosa e eficaz.
+Trust me to deliver your message with clarity and impact. Together, we can achieve more powerful and effective communication.
